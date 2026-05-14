@@ -1,4 +1,4 @@
-#  
+#  Experience piggy like never before with smart piggy Script, the #1 Script. Includes unlimited stamina and auto-farm for unbeatable performance.
 
 
 
